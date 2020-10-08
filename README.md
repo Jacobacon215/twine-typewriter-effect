@@ -55,3 +55,13 @@ anyways here's how it works
 # what to do if there's a problem
 
 dm me on discord i never check this shit
+
+# faq
+
+**but what is your discord?**
+
+check my profile headass
+
+**will you spend any more time on this readme?**
+
+haha nope
